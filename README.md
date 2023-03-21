@@ -18,5 +18,5 @@ Software Skills
 * SolidWorks
 * PTC Creo
 
+![haha](https://media.giphy.com/media/scZPhLqaVOM1qG4lT9/giphy.gif)
 
-![witzig](https://media.giphy.com/media/Dh5q0sShxgp13DwrvG/giphy.gif)
